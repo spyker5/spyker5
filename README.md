@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @spyker5
-- 👀 I’m interested in lear more about how to hack an facebook account. 
+- 👀 I’m interested in learn more about how to hack an facebook account. 
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on something usefull to Elon Musk
 - 📫 How to reach me, I'm fast, you can try it.
